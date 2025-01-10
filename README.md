@@ -1,4 +1,4 @@
-# moded-benchy
+# moded-Boats
 Send me your modded benchys for me to put in the repo, the email address is moddedbenchy@gmail.com
 (No NSFW please) 
 (stl file is preferred) 
